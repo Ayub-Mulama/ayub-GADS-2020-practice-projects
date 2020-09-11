@@ -1,1 +1,1 @@
-# AyubMulama-GADS-2020-projects-submission
+# Ayub-Mulama-GADS-2020-projects-submission
